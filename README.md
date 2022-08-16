@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yeswanthsiripurapu1
+- 👀 I’m interested in New Technology and Innovaties things
+- 🌱 I’m currently learning DeepLearing, ML and AI concepts in depth
+- Mail id siripurapuyeswanth9@gmail.com
+- Linkedin Account: https://www.linkedin.com/in/yeswanth-siripurapu
